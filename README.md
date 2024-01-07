@@ -31,6 +31,7 @@
 - Take your pork and beef out and slice into edible pieces
 
 **Shrimp paste (mắm ruốc)**
+
 Be careful not to mistaken it with mắm tôm (another kind of shrimp paste)
 
 ![shrimp-paste](shrimp-paste.png)
@@ -40,6 +41,7 @@ Be careful not to mistaken it with mắm tôm (another kind of shrimp paste)
 - Put the top clean layer of your bowl of mắm ruốc into your broth (now in the making)
 
 **Annatto oil**
+
 Can buy or make it yourself
 
 When to put annatto oil into your broth: after the broth is entirely done.
@@ -50,12 +52,17 @@ Probably important notes: some other recipes will tell you to caramelize minced 
 
 - Pork blood
 - Chả Huế (pork sausage)
+
   ![cha-hue](cha-hue.png)
+
 - Chả cua (crab sausage): there are 2 kinds of crab sausage I've seen. The first one is typically available in Vietnamese markets, but I doubt you can find it where you live. We can look up the recipe for crab sausage later :)
+
   ![cha-cua-1](cha-cua-1.png)
+
   ![cha-cua-2](cha-cua-2.png)
 
 **Sate chili oil**
+
 Can buy or make it yourself
 
 - 80ml cooking oil
@@ -77,8 +84,11 @@ Put it in your bowl of bun bo when you serve it, cause putting it into your enti
 - Spring onion
 - Onions
 - Sliced morning glory (it might be hard to find this in your supermarkets. you wouldn’t wanna slice it yourself cause it takes time 😛 tho I found this [tool](https://www.lazada.vn/products/dung-cu-che-rau-muong-dao-che-rau-muong-sieu-sac-i1517255250.html) that could be helpful to do it)
+
   ![morning-glory](morning-glory.png)
+
 - Sliced banana blossom
+
   ![banana-blossom](banana-blossom.png)
 
 Good luck! 😘
