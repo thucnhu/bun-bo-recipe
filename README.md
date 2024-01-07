@@ -40,6 +40,8 @@ Be careful not to mistaken it with mắm tôm (another kind of shrimp paste)
 - Leave it for 1 hour for the residue to settle at the bottom
 - Put the top clean layer of your bowl of mắm ruốc into your broth (now in the making)
 
+‼️Important notes: my mom does not advise putting the shrimp paste directly into the broth like other recipes do, as it would result in dark color and very strong smell of shrimp paste for the broth.
+
 **Annatto oil**
 
 Can buy or make it yourself
