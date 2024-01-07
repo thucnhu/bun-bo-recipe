@@ -81,7 +81,9 @@ Put it in your bowl of bun bo when you serve it, cause putting it into your enti
 **Greens 🥬🍃**
 
 - Thai Basil
-- Coriander
+- Perilla
+- Minced laska leaves
+- Minced Coriander
 - Saw leaves
 - Spring onion
 - Onions
