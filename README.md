@@ -25,7 +25,7 @@
   - 2 tsp of salt
   - Rock sugar (a few pices)
   - 1 bowl of fish sauce 🐟
-- Once it boils, there will be dark bubbles on the surface. Turn down the heat to minimal so the bubbles won’t disperse into your broth. Use a sieve sifter to get them out of your broth completely
+- Once it boils, turn the heat down to minimal so the scum won’t disperse into your broth. Use a sieve sifter to remove the scum from your broth completely
 - Put 12 beaten lemon grass into the broth
 - Leave it for 6 hours on low heat
 - Take your pork and beef out and slice into edible pieces
